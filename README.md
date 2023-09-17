@@ -10,7 +10,7 @@
 ![presentation](https://drive.google.com/uc?export=view&id=1vqpyDMVw99DVM0XC0U5K1B9pTNhoICde)
 ![presentation](https://drive.google.com/uc?export=view&id=1vqpyDMVw99DVM0XC0U5K1B9pTNhoICde)
 ![presentation](https://drive.google.com/uc?export=view&id=1vwBRW9AL3G5kkg9Dz1INSZQLm9ls9u4A)
-![presentation](https://drive.google.com/uc?export=view&id=
-![presentation](https://drive.google.com/uc?export=view&id=
-![presentation](https://drive.google.com/uc?export=view&id=
+![presentation](https://drive.google.com/uc?export=view&id=1vxKDifn1-Iw5g-ZFWZ5q_nS83OYxtrw8)
+![presentation](https://drive.google.com/uc?export=view&id=1w0ErIZKAWHedg_RzWuE02KzWDsgr-aF1)
+![presentation](https://drive.google.com/uc?export=view&id=1w1YYjXtNiXlbyujswn0iBXU8fW8feyGs)
 ![presentation](https://drive.google.com/uc?export=view&id=
