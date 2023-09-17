@@ -8,8 +8,8 @@
 ![presentation](https://drive.google.com/uc?export=view&id=1vuYH3evR6FNVpdVduCArEcqb-LCPK8mm)
 ![presentation](https://drive.google.com/uc?export=view&id=1vuHaf7jhBjim2iydJ0BKS9H_Te6au2cS)
 ![presentation](https://drive.google.com/uc?export=view&id=1vqpyDMVw99DVM0XC0U5K1B9pTNhoICde)
-![presentation](https://drive.google.com/uc?export=view&id=
-![presentation](https://drive.google.com/uc?export=view&id=
+![presentation](https://drive.google.com/uc?export=view&id=1vqpyDMVw99DVM0XC0U5K1B9pTNhoICde)
+![presentation](https://drive.google.com/uc?export=view&id=1vwBRW9AL3G5kkg9Dz1INSZQLm9ls9u4A)
 ![presentation](https://drive.google.com/uc?export=view&id=
 ![presentation](https://drive.google.com/uc?export=view&id=
 ![presentation](https://drive.google.com/uc?export=view&id=
